@@ -1,0 +1,1 @@
+# youversion-free-advertisements
